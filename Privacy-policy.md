@@ -1,1 +1,1 @@
-
+Dark Docket Privacy Policy. Dark Docket operates the @darkdockethq social accounts. This app accesses only our own Pinterest account to publish pins to our own boards. We do not collect, store, or share personal data of any Pinterest user. Contact: darkdockethq@gmail.com
